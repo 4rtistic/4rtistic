@@ -28,7 +28,7 @@
  <strong>im very kewl , ion bite so feel free to int!!!!! </strong> <img width="20" height="20" src="https://64.media.tumblr.com/d41d2336502684987b2dd15f1c6432fb/ef3796930a4ac20c-f7/s75x75_c1/75917dde8c3e08aa20023ee686a9c71e57d8db10.gifv"
 </p>
 <p align="center">
-<strong> I also have a  <a href= "https://retrospring.net/@4rtistict" >retrospring</a> if you want to leave me a little message!  <img width="20" height="20" src="https://64.media.tumblr.com/1c34d63d43b94d17d0ee4d6c45134da8/ef3796930a4ac20c-68/s75x75_c1/71dfcbb894a0b64039300ed60efbd404002eb935.gifv" </strong>
+<strong> I also have a  <a href= "https://retrospring.net/@4rtistic" >retrospring</a> if you want to leave me a little message!  <img width="20" height="20" src="https://64.media.tumblr.com/1c34d63d43b94d17d0ee4d6c45134da8/ef3796930a4ac20c-68/s75x75_c1/71dfcbb894a0b64039300ed60efbd404002eb935.gifv" </strong>
 </p>
 <p align="center">
 <strong> Here is my <a href= "https://rentry.co/4rtistic" >rentry</a> if you wanna know about me >_< </strong> <img width="20" height="20" src="https://64.media.tumblr.com/b64c3f8a0e0ebbfe87e1e3d219eb162e/d5f3956d46975a7f-b9/s75x75_c1/e548209a68836139ed9c4ed4bd6941c575cb4880.gifv"
