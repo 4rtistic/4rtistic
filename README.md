@@ -8,4 +8,4 @@
   <img src="https://files.catbox.moe/hl4jmm.png" alt="Preview" width="400">
 </p>  
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[rentry](https://rentry.co/4rtistic)ㅤㅤㅤㅤㅤ[atabook](https://4rtistic.atabook.org)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[𝐫𝐞𝐧𝐭𝐫𝐲](https://rentry.co/4rtistic)ㅤㅤㅤㅤㅤ[𝐚𝐭𝐚𝐛𝐨𝐨𝐤](https://4rtistic.atabook.org)ㅤㅤㅤㅤㅤ[𝐬𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://4rtisticc.straw.page)
