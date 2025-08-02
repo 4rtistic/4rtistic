@@ -6,7 +6,7 @@
 
 
 <p align="center">
-  <img src="https://files.catbox.moe/rcml5n.png" alt="Preview" width="90">
+  <img src="https://files.catbox.moe/4249lg.png" alt="Preview" width="90">
 </p>  
 
 
