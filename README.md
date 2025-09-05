@@ -6,7 +6,7 @@
 
 
 <p align="center">
-  ㅤㅤ<img src="https://files.catbox.moe/4249lg.png" alt="Preview" width="90">
+  ㅤㅤ<img src="https://files.catbox.moe/bewtie.png" alt="Preview">
 </p>  
 <p align="center">
 ㅤㅤ c+h freelyㅤ&ㅤsign ata
