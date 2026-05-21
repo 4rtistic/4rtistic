@@ -6,10 +6,7 @@
 
 
 <p align="center">
-  ㅤㅤ<img src="https://files.catbox.moe/ke0ba6.png" alt="Preview" width="600">
-</p>  
-<p align="center">
-ㅤㅤ c+h freelyㅤ&ㅤsign ata
+ㅤㅤ i will REMAKE the whole stuff..
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[𝐫𝐞𝐧𝐭𝐫𝐲](https://rentry.co/nqrse)ㅤㅤㅤㅤㅤ[𝐚𝐭𝐚𝐛𝐨𝐨𝐤](https://musician.atabook.org)
