@@ -2,7 +2,7 @@
 
 &nbsp; 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![𝄞](https://img.shields.io/badge/𝄞-2,222-%553469?style=plastic)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![𝄞](https://img.shields.io/badge/𝄞-2,222-%584170?style=plastic)
 
 
 <p align="center">
